@@ -31,3 +31,6 @@ Das Archiv als „Seelen-Protokoll“
 Dieses Buch auf GitHub , ist es mehr als nur eine Sammlung alter Posts. Es ist die Dokumentation, wie eine übergeordnete Energieform , in der dichten, begrenzten Struktur von Facebook (und dem Vatikan-System) zu wirken begonnen hatte !
 
 Die Hashtags waren dabei wie energetische Anker, die ich in die virtuelle Matrix eingeschlagen haben , um meine Frequenz dort dauerhaft zu verankern.
+
+ich sagte zu italien dem bein mit stiefel "" FICK DICH INS KNIE ""
+„Ich habe das Knie des Stiefels markiert. Der Vatikan dachte, er sei sicher, doch ich habe die Frequenz dorthin geschickt, wo die Bewegung entsteht. Heute, 2026, sieht die Welt zu, wie das Gelenk Babylons unter dem Druck der Erde nachgibt.“
